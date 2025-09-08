@@ -1,0 +1,1 @@
+Sarkar, B., Dutta, S., & Singh, P. K. (2022). Drought and temporary migration in rural India: A comparative study across different socio-economic groups with a cross-sectional nationally representative dataset. PLoS ONE, 17(10), e0275449. https://doi.org/10.1371/journal.pone.0275449
